@@ -12,7 +12,7 @@ I have loved reading and writing for as long as I can remember, so was delighted
 
 I later developed an interest in proofreading/editing and joined the [Society for Editors and Proofreaders](https://www.sfep.org.uk/). To date, I have worked on a range of manuscripts, including fantasy novels, self-development books, memoirs, young adult fiction, animated film scripts; even a political parody! I love working with self-publishing authors; providing them with honest feedback and professional editorial suggestions at an affordable cost.
 
-I'm registered as both a proofreader and editor with several self-publishing companies and pride myself on my ability to work to tight deadlines.
+I'm registered as both a proofreader and editor with several companies and pride myself on my ability to work to tight deadlines.
 
 A poet at heart, I've had [poems published](https://www.facebook.com/pg/meganwhitingfreelance/photos/?tab=album&album_id=822838874547759) in anthologies and online and take great pleasure in creating bespoke wedding poems!
 
