@@ -28,3 +28,7 @@ Get in touch for a fixed quote!
 > "Having a growing blog is great but it can be hard work, especially when you're trying to find good guest writers who genuinely fit with your blog's personality and brand. I get lots of unsuitable guest post applications and it becomes pretty disheartening at times. When Megan sent me her article, I was actually excited and I could tell her work would really appeal to my readers. Her article is funny, candid and motivational, everything that my blog is about and my readers love. Megan's writing is a breath of fresh air and I would highly recommend."
 
 -- K. Jean, Anxiouslass.com
+
+> Working with Megan has been a pleasure. She has helped me by editing my picture book, middle-grade novel and personal statement. As someone who is also horrible at grammar, I have learnt a lot. Megan is also great at communicating and very patient, which is important when working with an editor. My work is in much better shape now and I look forward to working with Megan again in the near future!
+
+-- H. Jama, author
