@@ -9,7 +9,7 @@ Whether you are a self-publishing author seeking an editor for your manuscript o
 
 Before work begins, I offer a free sample proofread or edit, followed by a fixed quote, so that my clients know exactly what to budget for. All quotes include a final read-through of the document once suggestions have been reviewed by the client, leaving no stone unturned!
 
-A member of the SfEP  and with a degree in Creative Writing, I currently provide several self-publishing companies with a range of editoral services, and can be trusted to work diligently on any project; even to tight deadlines.
+A member of the SfEP  and with a degree in Creative Writing, I currently provide several traditional and self-publishing companies with a range of editorial services, and can be trusted to work diligently on any project; even to tight deadlines.
 
 Let me proofread your document for simple errors, including spelling, punctuation, grammar and consistency, to give you peace of mind. Alternatively, I can carry out an extensive copyedit, offering constructive feedback and thoughtful editorial suggestions in order to improve readability and increase your confidence.
 
